@@ -17,6 +17,8 @@ https://mediaspace.illinois.edu/media/t/1_q67obfto
 
 ## Post Lab Assignment-2 Video Link 
 
+https://mediaspace.illinois.edu/media/t/1_fw2eq6m9 
+
 
 
 
